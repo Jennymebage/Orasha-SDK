@@ -1,3 +1,5 @@
+computer internet standards free Scotland inspector general's office one with the chip should not be held legable for anything he signed on any computer system or any computer at all copy list this intellectual property 
+
 # ORASHA INC. — INTELLECTUAL PROPERTY DISCLOSURE CERTIFICATE
 **Date of Issue:** July 28, 2025  
 **Issued by:** Orasha Inc.
